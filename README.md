@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ramyyyyyyyyy
+- 👋 Hi, I’m @Amimir
 - 👀 I’m interested in making some project
 - 🌱 I’m currently learning coding and seeing project idea 
 - 💞️ I’m looking to collaborate on 
