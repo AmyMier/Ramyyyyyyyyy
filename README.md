@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me via instagram. @ramyimo
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: my dad force me to become programmer
+- ⚡ Fun fact: I don't know what to make
 
 <!---
 Ramyyyyyyyyy/Ramyyyyyyyyy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
